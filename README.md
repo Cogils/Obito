@@ -18,4 +18,4 @@ Welcome to my cozy little dorm. There are few things here to check out, but just
 
 ## 🌏 Socials
 
-Talk to you on [Discord!](https://discord.gg/EbHRNrvXqm)
+Talk to you on [Telegram](https://t.me/originaldominic)
